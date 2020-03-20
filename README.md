@@ -1,2 +1,2 @@
-# History-of-domestic-universities
+# History-Of-Domestic-Universities
 国内大学校史
