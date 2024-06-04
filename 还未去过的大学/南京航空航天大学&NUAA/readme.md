@@ -1,1 +1,1 @@
-https://xsg.nuaa.edu.cn/
+https://xsg.nuaa.edu.cn
